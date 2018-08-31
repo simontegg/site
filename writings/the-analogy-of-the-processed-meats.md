@@ -1,4 +1,3 @@
-
 # The Analaogy of the Processed Meats
 
 A couple of years ago I hit upon a useful analogy for a common but under-discussed flavour of organisational dysfunction. I called it "selling dogfood as pâté when luncheon meat is readily available". The analogy refers to the practice to spend effort creating and refining some unique process, or tool, or structure and convincing people that the process is really wonderful, instead of focusing on what's really important: people,mindsets, and relationships.
